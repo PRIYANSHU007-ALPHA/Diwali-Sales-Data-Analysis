@@ -125,3 +125,12 @@ This analysis provides valuable direction for **targeted marketing**, **inventor
 **Priyanshu Ranjan**
 B.Tech CSE | Vivekananda Global University
 
+---
+
+🔗 Connect With Me
+📧 Email: priyanshu.ranjan1235@gmail.com
+
+💼 LinkedIn: www.linkedin.com/in/priyanshu-ranjan-247756286
+
+
+
